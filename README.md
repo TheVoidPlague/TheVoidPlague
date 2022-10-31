@@ -1,5 +1,5 @@
 ## Yo! 👋
-I'm VoidPlague, some 18 years old guy from in Sweden.
+I'm VoidPlague, some 19 y/o guy from Sweden.
 
 ## Projects 🤔
 Currently I do not have any projects ongoing.
